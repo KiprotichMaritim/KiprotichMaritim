@@ -1,4 +1,7 @@
-### Hi there 👋
+### Hey there 👋, You can call me Kip 
+
+⚡ Fun fact: Pro Mountain biker and aspiring Triathlete
+😄 Pronouns: Him/His
 
 <!--
 **KiprotichMaritim/KiprotichMaritim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
